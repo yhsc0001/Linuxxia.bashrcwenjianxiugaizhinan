@@ -1,0 +1,1 @@
+# Linuxxia.bashrcwenjianxiugaizhinan
